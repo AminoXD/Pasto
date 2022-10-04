@@ -21,6 +21,11 @@ La boucle est bouclée,le système a la tête sous l'eau\
   Regarde-le, quand il parle, écoute-le!\
   Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux\
 
+Mais laisse pas traîner ton fils\
+Si tu ne veux pas qu'il glisse\
+Qu'il te ramène du viceLaisse pas traîner ton fils\
+Si tu veux pas qu'il glisse\
+
 Putain, c'est en me disant "j'ai jamais demandé à t'avoir!"\
 C'est avec ces formules, trop saoulées, enfin faut croire\
 Que mon père a contribué à me lier avec la rue\
